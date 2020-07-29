@@ -1,3 +1,3 @@
 ########
 $$$$$$$$
-stupid boss
+i love money
